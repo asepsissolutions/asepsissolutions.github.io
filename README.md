@@ -1,7 +1,7 @@
 # asepsis.tk
-# asepsissolutions.github.io
 
-We deal only in wholesale.
+
+# We deal only in wholesale.
 
 You can contact us to Buy
       
